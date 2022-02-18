@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HagbardCel1ne
-- 👀 I’m interested in wold domination
+- 👀 I’m interested in world domination
 - 🌱 I’m currently learning how to train Dolphins
 - 💞️ I’m looking to collaborate on airspace sovereignty
 - 📫 How to reach me ... prayer
